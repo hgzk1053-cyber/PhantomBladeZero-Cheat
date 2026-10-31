@@ -1,5 +1,4 @@
-[K]
-Here you go — English, my own wording, no copy-paste phrasing.
+
 
 ---
 
